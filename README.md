@@ -1,0 +1,1 @@
+![](brighton_beach.jpg)
